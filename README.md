@@ -1,5 +1,5 @@
-Shiwani Yadav | Georgia State University
-Business Analyst | Data Analyst | Consultant  | seeking a similar role at an innovative firm utilising my client management, analytical and problem solving skills.
+Shiwani Yadav || Georgia State University-Robinson || Information Systems ||
+Business Analyst | Data Analyst | Consultant  || seeking a similar role at an innovative firm utilising my client management, analytical and problem solving skills.
 
 
 <!---
