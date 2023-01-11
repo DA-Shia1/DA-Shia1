@@ -1,5 +1,5 @@
-Shiwani Yadav || Georgia State University-Robinson || Information Systems ||
-Business Analyst | Data Analyst | Consultant  || seeking a similar role at an innovative firm utilising my client management, analytical and problem solving skills.
+Shiwani Yadav || SAfe Certified 5 Product Owner/Product Manager || J Mack Robinson College of Business || Information Systems - Data Analytics || Product Owner || Product Manager ||
+Business Analyst || Data Analyst || Consultant  || seeking a similar role at an innovative firm utilising my client management, analytical and problem solving skills.
 
 
 <!---
